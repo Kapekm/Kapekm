@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Kacper also knows @Kapekm
+- 👀 I’m interested in innovations in the food industry, currently looking at ways of bettering the landscape with data solutions
+- 🌱 I’m currently learning Food Technology at Wageningen University with a minor is data science.
+- 📫 Happy to collaborate of anything that sparks my curiosity
